@@ -1,0 +1,1 @@
+# IF2-10118063-Latihan5-KambingGlobal
